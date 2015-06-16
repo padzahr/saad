@@ -1,1 +1,1 @@
-Saad from afrikanas, meaning seed
+Saad from afrikanas, meaning seed. Also from the Estonian meaning 'you can'.
